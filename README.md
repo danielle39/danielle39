@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @danielle39
+- 👀 I’m interested in books
+- 🌱 I’m writing a book
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me jamieashcroftbillings@millriverschools.org
